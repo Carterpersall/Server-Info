@@ -1,4 +1,6 @@
 # Server Info
+Please Join the discord server at discord.gg/97Rc8rPcq7 so I am able to contact you and to provide information on updates
+
 
 ## Rules
 
